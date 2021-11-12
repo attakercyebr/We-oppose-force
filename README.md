@@ -180,11 +180,9 @@ Details: A few very interesting Colombian government leaks
 
 -📌 M1 Abrams tank manuals
 http://www.mediafire.com/file/m61wllvv6b2tlgl/tank.zip/file
-Details: https://www.recordedfuture.com/reaper-drone-documents-leaked
 
 -📌 MQ-9 reaper drone documents
 Download link: https://www.sendspace.com/file/m182nc
-Details: https://www.recordedfuture.com/reaper-drone-documents-leaked
 
 ----------------------
 # 👊 M4nifest0 Black Hat Hacking Team™💪
