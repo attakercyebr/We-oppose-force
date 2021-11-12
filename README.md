@@ -46,10 +46,12 @@ https://anonfiles.com/bdw3odp8u7/chieko.milne_dyn-intl.com_rar
 https://anonfiles.com/n8Yfw9pcu8/Charles.Wangoo_dyn-intl.com_rar
 https://anonfiles.com/F4w857p9u3/Hauwa.Lee_dyn-intl.com_rar
 https://anonfiles.com/BbId65p6ua/jimmy.francisco_dyn-intl.com_ra
-Passwords for the files:
+
+-📌 Passwords for the files:
 112233112233
 112233112233112233
-Email:Pass file download link: https://anonfiles.com/pfN4Bfn8u4/DynCorp_login_txt
+
+-📌 Email:Pass file download link: https://anonfiles.com/pfN4Bfn8u4/DynCorp_login_txt
 Details: These files were downloaded from multiple email accounts of DynCorp International employees in the year 2020. The reason for this upload is to oppose the US and its imperialist ways by leaking files related to a American military contractor.
 
 -📌 Hellenic Airforce documents and email credentials leak
